@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on .. anything to help me grow.
 - 📫 How to reach me ... email
 - 😄 Pronouns: ... none
-- ⚡ Fun fact: ... quick learner
+- ⚡ Fun fact: ... i have bright Red hair
 
 <!---
 mamalex7/mamalex7 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
